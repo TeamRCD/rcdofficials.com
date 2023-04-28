@@ -29,3 +29,4 @@ RCD is a Digital Goods company that provides FREE bot hosting, CHEAP web hosting
 𝐒𝐓𝐀𝐓𝐔𝐒
 
 https://status.rcdofficials.com
+DISCORD: https://discord.com/invite/qzPX2nfgPR
